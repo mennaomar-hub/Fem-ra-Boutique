@@ -3,3 +3,4 @@ Description: Femèra is an Egyptian women’s fashion brand offering modern, ele
 Team: Menntallah Omer - Bassant Mohamed - Esraa Ashraf - Nada Ayman
 Instructor: dr/Tamer elmogazy
 Tasks: Menna⭢ content calendar  Esraa⭢logo and data input  Bassant and Nada ⭢ account Creation facebook and insta
+https://1drv.ms/f/c/1ef236ae9fa38239/IgAUfQH6ntT7RZqyzWddmnESASW1-vwB3J-m0zK0JxV7xWU?e=UKmsj7
