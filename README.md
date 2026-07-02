@@ -5,7 +5,7 @@ Description: Femèra is an Egyptian women’s fashion brand offering modern, ele
 - Bassant Mohamed
 - Esraa Ashraf
 - Nada Ayman
-## Instructor: dr/Tamer elmogazy
+## Instructor: dr/Tamer elmoghazy
 ## Team Responsibilites:
 - Menntallah omar: Content Creator
 - Bassant Mohamed: Media Buyer
