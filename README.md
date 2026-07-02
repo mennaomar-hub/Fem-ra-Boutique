@@ -12,7 +12,7 @@ Description: Femèra is an Egyptian women’s fashion brand offering modern, ele
 - Esraa Asharf: Graphic Designer
 - Nada Ayman: copywriter
 - https://1drv.ms/f/c/1ef236ae9fa38239/IgArrxX7fyDXTrvlD8-DxNywAU1i-tMCysqpBhIUTiEkvQA?e=8oSdCC
-  ## Account links:
+  ## Project links:
   - https://www.instagram.com/femera_eg?igsh=eTNjYzBibGQ3eWhv
   - https://www.facebook.com/share/194Pvy8CpR/
   - https://www.tiktok.com/@femera_boutique_?_r=1&_t=ZS-97hghz3LKfl
